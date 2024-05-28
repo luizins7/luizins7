@@ -9,7 +9,7 @@ Meu nome é Luiz Donizete
 
 ### Você pode entrar em contato comigo 📫
 
-paludettomarcelo@gmail.com
-@marcelopaludetto
+luizaugusto@gmail.com
+@luizaugusto
 
 ![](https://media1.tenor.com/m/RLaiVDM-SlkAAAAd/hi-bye-hi.gif)
